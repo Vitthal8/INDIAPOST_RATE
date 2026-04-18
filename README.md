@@ -1,0 +1,1 @@
+# INDIAPOST_RATE
